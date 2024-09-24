@@ -1,5 +1,5 @@
-sandhiyathirumal
-shajeetha
-shalini 
-srinithi
-vidyavarshinisgit 
+SANDHIYA
+SHAJEETHA
+VIDYA
+SRINITHI
+SHALINI
